@@ -1,1 +1,1 @@
-# Profit-Coin
+# Profit Coin
